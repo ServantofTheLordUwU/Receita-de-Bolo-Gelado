@@ -2,5 +2,6 @@
 https://servantofthelorduwu.github.io/Receita-de-Bolo-Gelado/
 
 Faça Esse Bolo Para Dias Muito Quentes!
-Se delicie!!!
+
+Se Delicie!!!
 
